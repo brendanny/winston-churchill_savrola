@@ -1,0 +1,1 @@
+This ebook has been published by [Standard Ebooks](https://standardebooks.org/ebooks/winston-churchill/savrola) and code hosting transferred to the [Standard Ebooks GitHub organization](https://github.com/standardebooks/winston-churchill_savrola).
